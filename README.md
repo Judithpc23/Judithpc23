@@ -55,14 +55,17 @@ Research accepted for publication with **Springer**.
 ### 🧠 Beyond code
 
 🎓 **Student Representative** — Engineering Committee
+
 🟣 **Vice President** — ACM Student Chapter
+
 ⚡ **Webmaster** — IEEE Student Branch
+
 🔬 **Research Seedbed Member**
 
 ---
 
 ### 💬 Let's connect
 
-[LinkedIn]([#](https://www.linkedin.com/in/judith-perez-conde/)) · [Email](mailto:jiconde@uninorte.edu.co)
+[LinkedIn](https://www.linkedin.com/in/judith-perez-conde/) · [Email](mailto:jiconde@uninorte.edu.co)
 
 ✨ *Always curious. Always building.*
