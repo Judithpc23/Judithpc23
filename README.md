@@ -66,6 +66,6 @@ Research accepted for publication with **Springer**.
 
 ### 💬 Let's connect
 
-[LinkedIn](https://www.linkedin.com/in/judith-perez-conde/) · [Email](mailto:jiconde@uninorte.edu.co)
+[LinkedIn](https://www.linkedin.com/in/judith-perez-conde/) · [Email](mailto:judithpcdev@gmail.com)
 
 ✨ *Always curious. Always building.*
